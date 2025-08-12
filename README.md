@@ -1,4 +1,4 @@
-<img src="logo.png" alt="Pintu" width="20" height="20"/>
+<img src="logo.png" alt="Pintu" width="30" height="30"/>
  # WA 0821 7001 0763 Pintu Baja FORTRESS Sorong
 BERKUALITAS..!! WA 0821 7001 0763 (FORTRESS) Harga Pintu Baja Fortress 2 Pintu Di Mamberamo Raya
 
@@ -68,6 +68,7 @@ Klik tombol di bawah untuk langsung terhubung via WhatsApp:
 
 ## 🔍 Tags
 hargapintubajafortress2pintudimamberamoraya, hargapintubajadidogiyai, ukuranpintubajafortressdipuncak, merkpintubajaterbaikdilannyjaya, pintubajaantikaratdimerauke
+
 
 
 
