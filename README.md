@@ -1,5 +1,5 @@
 # WA 0821 7001 0763 Pintu Baja FORTRESS Sorong
-<img src="logo.png" width="40" height="40" > BERKUALITAS..!! WA 0821 7001 0763 (FORTRESS) Harga Pintu Baja Fortress 2 Pintu Di Mamberamo Raya
+<img src="logo.png" width="40" height="40" > # BERKUALITAS..!! WA 0821 7001 0763 (FORTRESS) Harga Pintu Baja Fortress 2 Pintu Di Mamberamo Raya
 
 [![WhatsApp Button](https://img.shields.io/badge/Chat%20via%20WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=white)](https://wa.me/6282170010763)[![Website Button](https://img.shields.io/badge/Kunjungi%20Website-007BFF?style=for-the-badge&logo=google-chrome&logoColor=white)](https://www.pintubajafortress.co.id/)
 
@@ -57,7 +57,7 @@ Harga Pintu Baja Fortress 2 Pintu Di Mamberamo Raya, Ukuran Pintu Baja Fortress 
 
 ## 📞 Hubungi Kami
 Klik tombol di bawah untuk langsung terhubung via WhatsApp:
-<img src="logo.png" alt="Pintu" width="40" height="40"/>
+<img src="logo.png" width="40" height="40" >
 [![WhatsApp Button](https://img.shields.io/badge/Chat%20via%20WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=white)](https://wa.me/6282170010763)
 [![Website Button](https://img.shields.io/badge/Kunjungi%20Website-007BFF?style=for-the-badge&logo=google-chrome&logoColor=white)](https://www.pintubajafortress.co.id/)
 
@@ -67,6 +67,7 @@ Klik tombol di bawah untuk langsung terhubung via WhatsApp:
 
 ## 🔍 Tags
 hargapintubajafortress2pintudimamberamoraya, hargapintubajadidogiyai, ukuranpintubajafortressdipuncak, merkpintubajaterbaikdilannyjaya, pintubajaantikaratdimerauke
+
 
 
 
